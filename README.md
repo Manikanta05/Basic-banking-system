@@ -10,7 +10,7 @@ Github link: https://lnkd.in/gnGrndP
 
 Youtube link: https://lnkd.in/gK24PKf
 
-Deployment link: https://lnkd.in/gUURVkP
+Deployment link: https://manikanta05.000webhostapp.com/index.php
 
 Your valuable reviews and feedbacks are appreciated.
 
